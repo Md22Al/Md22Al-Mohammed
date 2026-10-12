@@ -1,4 +1,4 @@
-https://github.com/Md22Al/Md22Al-Mohammed.git
+https://github.com/Md22Al
 Md22Al-Mohammed
 # 👋 Hi, I'm Mohammed Al-Thubaiti!
 
